@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ImAwsumm
-- 👀 I’m interested in Computers 
+- 👀 I’m interested in Computer hardware and software
 - 📫 How to reach me Discord: im.awsum#0
 - 😄 Pronouns: Walmart/Bag
 - ⚡ Fun fact: Im Awsum For real
