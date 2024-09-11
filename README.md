@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ImAwsumm
 - 👀 I’m interested in Computer hardware and software 
-- 📫 How to reach me -> Discord: im.awsum
+- 📫 How to reach me -> Discord: im.awsum/ ImAwsum on Minecraft
 - 😄 Pronouns: Walmart/Bag
 - ⚡ Fun fact: Im Awsum 
 <!---
